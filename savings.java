@@ -5,4 +5,10 @@ Now pan is mandatory to link with mobile number
 
 
 So finance minister has extended the dead line to march 30 2022
+ 
 
+
+
+Regards 
+Secretary of finance
+GOI
